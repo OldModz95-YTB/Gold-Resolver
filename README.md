@@ -7,6 +7,8 @@ discord.gg/3t528W
 
 
 
+
+
 Skype resolver
 
 Resolve database
