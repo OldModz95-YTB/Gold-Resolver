@@ -4,9 +4,8 @@ Gold Resolver By OldModz95
 
 discord.gg/3t528W
 
-
-
-
+<br>
+<br>
 
 
 Skype resolver
