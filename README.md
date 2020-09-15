@@ -1,6 +1,8 @@
 # Gold-Resolver
 Gold Resolver By OldModz95
 
+Download exe: https://cdn-108.anonfiles.com/x1N1sbV0o9/a8571599-1600162000/Gold%20Resolver.rar
+
 
 discord.gg/3t528W
 
